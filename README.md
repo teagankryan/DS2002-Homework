@@ -1,1 +1,1 @@
-Homework submission!
+Homework submissions!
